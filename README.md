@@ -1,2 +1,2 @@
-Lê Bá Thành Trung
+Lê Bá Thành Trung\n
 B22DCDT320
